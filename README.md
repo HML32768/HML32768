@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @HML32768
 - 👀 I’m interested in Life.
-- 🌱 I’m currently learning programming.
+- 🌱 I’m still learning ;).
 - 💞️ I’m looking to collaborate on interesting things.
 - 📫 How to reach me ... feel free to contact me ;)
 - 😄 Pronouns: Mr.
